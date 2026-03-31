@@ -1,7 +1,8 @@
 ## Bem Vindo ao meu perfil ❄️🟪🟦
-Olá me chamo Gabriel Frainer, 
+Olá me chamo Gabriel Frainer, Atualmente tenho 17 anos e Possuo Autismo Nível 1 de Suporte e TDAH
 
 - 💻 Atualmente estou aprendendo Desenvolvimento de Jogos
+- 🖱️ Busco aprender coisas novas apesar de minhas dificuldades
 
 
 <div>
